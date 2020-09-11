@@ -1,4 +1,4 @@
 Hi!
 Hello!!
 Welcome!!!
-Happy Fun Learning!!!!.
+Happy Fun Learning!!!!
